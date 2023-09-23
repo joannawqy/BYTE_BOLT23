@@ -3,7 +3,7 @@
 ## Materials
 
 ## Case Analysis
-*In-Progress*
+https://ubcca-my.sharepoint.com/:w:/g/personal/qwang18_student_ubc_ca/EWNrawFsbFpInfo76Ufnp4kBCUWi2NyIpgfe3l8CZkEo-w?e=313RiM
 
 
 ## Data Analysis
