@@ -14,5 +14,6 @@ https://ubcca-my.sharepoint.com/:w:/g/personal/qwang18_student_ubc_ca/EWNrawFsbF
 
 ## Presentation Deck
 
-https://ubcca-my.sharepoint.com/:p:/g/personal/qwang18_student_ubc_ca/EUrbStq4Pw9AnuZRvWaYPpYBFyeGWNEKDd-jN516ME3jpw?e=DaNsoq)https://ubcca-my.sharepoint.com/:p:/g/personal/qwang18_student_ubc_ca/EUrbStq4Pw9AnuZRvWaYPpYBFyeGWNEKDd-jN516ME3jpw?e=DaNsoq
+https://ubcca-my.sharepoint.com/:p:/g/personal/qwang18_student_ubc_ca/EYpep4N23dxJoPScJdJqhC8BSlh-4nV5cwFObxb5Mg7kDA?e=RR7s88
+
 
